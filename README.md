@@ -13,6 +13,8 @@
 
   𝗣𝗟𝗘𝗔𝗦𝗘 𝗡𝗢𝗧𝗘 ; ɪ ᴀᴍ ᴄᴏɴꜱᴛᴀɴᴛʟʏ ꜱᴇᴍɪ-ᴀꜰᴋ, ʙᴜᴛ ᴡɪʟʟ ᴀʟᴡᴀʏꜱ ʀᴇꜱᴘᴏɴɢ ᴛᴏ ᴡʜɪꜱᴘᴇʀꜱ ɪꜰ ʏᴏᴜ ᴀʀᴇ ꜱᴛɪʟʟ ᴏɴʟɪɴᴇ.
 
-to be edited as time goes on.
+                                   Qꜱᴍᴘ . ᴏᴘ . ᴀʟɴꜱᴛ . ᴋɴʏ . ɪʟᴛᴠ
+
+to be edited as time goes on. strawpage in work
 
 I LOVE SUA
