@@ -15,7 +15,7 @@
 
                                    Qꜱᴍᴘ . ᴏᴘ . ᴀʟɴꜱᴛ . ᴋɴʏ . ɪʟᴛᴠ
 
-                            https://amorcito-s.straw.page
+                            <a href="(https://amorcito-s.straw.page)">
 
 to be edited as time goes on.
 
