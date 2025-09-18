@@ -15,6 +15,8 @@
 
                                    Qꜱᴍᴘ . ᴏᴘ . ᴀʟɴꜱᴛ . ᴋɴʏ . ɪʟᴛᴠ
 
-to be edited as time goes on. strawpage in work
+                            https://amorcito-s.straw.page
+
+to be edited as time goes on.
 
 I LOVE SUA
